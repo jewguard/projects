@@ -1,2 +1,1 @@
-# projects
-amazing
+# https://artificialdisappointment.com/
